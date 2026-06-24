@@ -1,1 +1,1 @@
-# Projekt-systemu-do-analizy-trend-w-i-prognozowania-przep-yw-w-migracyjnych-w-krajach-UE-
+# Projekt-systemu-do-analizy-trendów-i-prognozowania-przepływów-migracyjnych-w-krajach-UE-
